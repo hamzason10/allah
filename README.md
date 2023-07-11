@@ -1,0 +1,2 @@
+# allah
+Allah is Great
